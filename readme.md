@@ -3,7 +3,7 @@
 ## I'm a Mobile Application Developer, and Drummer!!
 
 - 🌱 I’m currently learning everything 🤣
-- ⚡ Fun fact: I love to play drums
+- ⚡ Fun fact: I really love to play drums 🥁
 
 ### Languages and Tools:
 
